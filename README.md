@@ -6,7 +6,7 @@
 
 - 👀 I’m currently working on a 2D game about a former soldier embarking on a journey through different realms with a mysterious cube. [https://youtu.be/-fjyDcFuwd8](https://youtu.be/-fjyDcFuwd8)
 
-- 🗺️ My Consept Maps :  **https://drive.google.com/drive/folders/15OqxdQsT7kV56vi5KUWqXisEjzsFiOqC?usp=sharing**
+- 🗺️ My Concept Maps :  **https://drive.google.com/drive/folders/15OqxdQsT7kV56vi5KUWqXisEjzsFiOqC?usp=sharing**
 
 - 🧊 My Low Poly 3D Models : [https://drive.google.com/drive/folders/1s5QOM7BuPZRIPoOpNO96PbkQsw_91HYz?usp=sharing](https://drive.google.com/drive/folders/1s5QOM7BuPZRIPoOpNO96PbkQsw_91HYz?usp=sharing)
 
